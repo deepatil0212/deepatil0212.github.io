@@ -1,1 +1,0 @@
-# deepatil0212.github.io
